@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ashley Tuscano
-- 👀 I’m interested in "\O_o/"
-- 🌱 I’m currently learning "\O_o/"
+- 👀 I’m interested in ""\O_o/""
+- 🌱 I’m currently learning ""\O_o/""
 - 💞️ I’m looking to collaborate on "\O_o/"
 - 📫 You can reach me at ashleytuscano@gmail.com
 
